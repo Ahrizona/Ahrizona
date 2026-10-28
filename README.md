@@ -14,7 +14,7 @@
 
 💻 5 años de experiencia en programación. 
 
-📝 Deportista en Voleibol y Ajedrez-
+📝 Ajedrez y Voleibol
 
 📫 Contacto: **mathiasrodas11@gmail.com**
 <!--Intro end-->
