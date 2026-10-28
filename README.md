@@ -8,7 +8,7 @@
 <!--Intro start-->
 
 <p align="left">
-🎓 Cursando ultimo año de Bachillerato en Ciencias, designado Brigadier de Liceo Naval Jambelí por méritos académicos. 
+🎓 Cursando ultimo año de Bachillerato en Ciencias.
 
 🎥 Manejo profesional de redes sociales, y programas como Canva, Photoshop
 
